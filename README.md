@@ -1,0 +1,5 @@
+![screen1](https://github.com/yagatho/Icosphere-made-of-hexagons/assets/86236527/1f2b5650-b280-40b9-aa52-6afb28726bea)
+![screen2](https://github.com/yagatho/Icosphere-made-of-hexagons/assets/86236527/4414a2df-838f-4321-943d-8383d23b3cbf)
+![screen3](https://github.com/yagatho/Icosphere-made-of-hexagons/assets/86236527/668aa165-e4fb-4c2c-a636-a1056aeea580)
+![screen4](https://github.com/yagatho/Icosphere-made-of-hexagons/assets/86236527/c8382803-1984-41e4-9cd7-772ae759b17c)
+![screen5](https://github.com/yagatho/Icosphere-made-of-hexagons/assets/86236527/99d3c9b2-ac2b-4f11-aca3-4c0700bc7bcd)
